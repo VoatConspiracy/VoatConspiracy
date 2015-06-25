@@ -1,3 +1,5 @@
+Consider visiting /v/ConspiracyMeta to discuss our subverse and its moderation.
+
 Rule 1: No Spam or Memes
 
 Rule 2: No overt attacks on people's race, religion, ethnicity, nationality, or creed
