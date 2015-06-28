@@ -1,3 +1,5 @@
+##### [Night mode now works](https://voat.co/v/conspiracymeta/comments/176959) on /v/conspiracy. Thanks to @Nurdoidz for his work on /v/typogra
+
 Consider visiting /v/ConspiracyMeta to discuss our subverse and its moderation.
 
 Rule 1: No Spam or Memes
