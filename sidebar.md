@@ -1,4 +1,4 @@
-##### [Night mode now works](https://voat.co/v/conspiracymeta/comments/176959) on /v/conspiracy. Thanks to @Nurdoidz for his work on /v/typogra
+##### Please consider [sorting posts by "new"](https://voat.co/v/Conspiracy/new) and voting to help promote quality submissions! Thanks!
 
 Consider visiting /v/ConspiracyMeta to discuss our subverse and its moderation.
 
